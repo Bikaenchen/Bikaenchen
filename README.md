@@ -1,4 +1,4 @@
-# Hi, I'm Bikaen a and i do coding lol.
+# Hi, I'm Bikaen and i do coding lol.
 
 - 👋 Hi, I’m @Bikaenchen
 - ⚔️ Interested in game cheating
